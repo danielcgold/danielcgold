@@ -1,1 +1,1 @@
-![meow](https://placekitten.com/1600/800)
+![meow](https://placekitten.com/1200/630)
